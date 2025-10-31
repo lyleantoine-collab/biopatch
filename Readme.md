@@ -1,6 +1,6 @@
 # BioPatch self healing concrete one packet no empire
 ## The Packet
-- $2.99 ships flat
+- $25 ships flat
 - Bacteria + calcium lactate
 - Rip Dump Mix
 - Water hits Crack bacteria wakes Crack seals.
